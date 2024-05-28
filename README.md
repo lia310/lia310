@@ -1,4 +1,5 @@
-## Hi there 👋
+
+![vac](https://github.com/lia310/lia310/assets/171064966/da84d51a-1427-4062-9d0c-0a9037e3dbd2)
 
 <!--
 **lia310/lia310** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
