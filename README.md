@@ -1,7 +1,7 @@
 
 ![vac](https://github.com/lia310/lia310/assets/171064966/da84d51a-1427-4062-9d0c-0a9037e3dbd2)
 - 💀 Bad Paster and sskid
-- 😶 Furry Femboy lover
+- 😶 Fuck EAC
 - 🤡 clown user
 <p align="center">
   <a href="https://www.youtube.com/watch?v=JAvnOXFGE5o"><img width="32px" alt="Youtube" title="Funny VAC Momento" src="https://static.wikia.nocookie.net/logopedia/images/9/90/Valve_Anti-Cheat.png/revision/latest?cb=20220512122650"/></a>
